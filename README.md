@@ -17,7 +17,7 @@ Diese Seite befindet sich im Aufbau. Neue Module, Inhalte und die Integration vo
 
 ## 📬 Kontakt
 
-📧 [vanoosterwijk@gmx.de](mailto:goldenerschnitt21@gmail.com)
+📧 [goldenerschnitt21@gmail.com](mailto:goldenerschnitt21@gmail.com)
 
 ---
 
